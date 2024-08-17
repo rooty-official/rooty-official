@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @rooty-official
+- 👋 Hi, I’m Rooty ^^
 - ⚡ Fun fact: murr-meow
